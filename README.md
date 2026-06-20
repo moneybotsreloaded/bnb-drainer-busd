@@ -1,6 +1,7 @@
 for full unencrypted drainer go to https://moneybots.myshoppex.io/product/custom-drainer-script
 
 telegram @Moneybotsreloaded
+
 https://x.com/moneywithbots
 
 setup https://youtu.be/ESxOvW-IOg0
